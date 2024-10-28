@@ -1,3 +1,3 @@
 # DeepLearning.AI
 
-![image](https://github.com/user-attachments/assets/d46cc4f6-2aa0-418e-a56f-7b131bf2e02b)
+![image](https://preview.redd.it/7nl889vauof71.png?width=1147&format=png&auto=webp&s=e741186dc8095967958784c8a7a4bbe7f272f747)
